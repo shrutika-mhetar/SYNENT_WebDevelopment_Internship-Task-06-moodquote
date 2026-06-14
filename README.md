@@ -1,0 +1,1 @@
+# SYNENT_WebDevelopment_Internship-Task-06-moodquote
